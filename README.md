@@ -1,2 +1,2 @@
-# ollivierred.github.io
-Landing page dedicate to advertising services
+# Coming Soon
+The designer next door's online services
